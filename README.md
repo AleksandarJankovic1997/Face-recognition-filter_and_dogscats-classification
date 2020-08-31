@@ -12,3 +12,13 @@
 ![mustacheFace](https://user-images.githubusercontent.com/61546836/75448244-224bff00-596b-11ea-9743-0d1fb54ec66e.jpg)
 
 
+#
+![Screenshot_2020-08-30-02-39-19-556_com example vestackainteligencija1](https://user-images.githubusercontent.com/61546836/91675660-68ae3080-eb3d-11ea-9c42-c2eeab153874.jpg)
+![Screenshot_2020-08-30-02-38-52-511_com example vestackainteligencija1](https://user-images.githubusercontent.com/61546836/91675661-69df5d80-eb3d-11ea-850e-a3114823adfb.jpg)
+![Screenshot_2020-08-30-02-38-26-695_com example vestackainteligencija1](https://user-images.githubusercontent.com/61546836/91675662-6a77f400-eb3d-11ea-9dcc-09ea579b9820.jpg)
+![Screenshot_2020-08-30-02-37-19-389_com example vestackainteligencija1](https://user-images.githubusercontent.com/61546836/91675664-6b108a80-eb3d-11ea-99e7-82cd324270c5.jpg)
+![Screenshot_2020-08-30-02-36-53-526_com example vestackainteligencija1](https://user-images.githubusercontent.com/61546836/91675665-6b108a80-eb3d-11ea-87c6-c964db392100.jpg)
+
+
+
+
